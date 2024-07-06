@@ -1,7 +1,7 @@
 # Download Kodi Omega IPA for iOS 16 - iOS 18 [Kodi IPA Premium Unlocked]
 
 <p align="center">
-    <img src="https://github.com/AppDBRepo/Kodi-iOS-Download/assets/174770769/3358ae8c-bb35-4843-b849-f16e6215f078" alt="Kodi Omega Logo" width="100" height="100">
+    <img src="https://github.com/AppDBRepo/Kodi-iOS-Download/assets/174770769/607986e2-e120-4ae2-a1b1-f703aa8bedda" alt="Kodi Omega Logo" width="100" height="100">
     <br>
     📥 <a href="https://iospack.com/apps/download-itweaked-store/#download">Download Kodi Omega </a>
 </p>
@@ -19,7 +19,7 @@ Kodi 21.0 "Omega" marks the most recent major release of the renowned media play
 
 You can download the latest Kodi 21 Omega IPA for iOS on your iPhone, iPad, or iPod here and install it using Altstore, Sideloadly, TrollStore, Scarlet, and Esign.
 
- [<img src="https://github.com/AppDBRepo/Kodi-iOS-Download/assets/174770769/e07b138c-2d3a-40d7-a701-a6ab93e45bf0" width="70" height="70">](https://iospack.com/apps/esign-ipa-installer/)   [<img src="https://github.com/AppDBRepo/Kodi-iOS-Download/assets/174770769/b0c7d3ed-e2a5-4ad4-aea5-866f76dd5fec" width="70" height="70">](https://iospack.com/apps/trollstore/)  [<img src="https://github.com/AppDBRepo/Kodi-iOS-Download/assets/174770769/e00a13f3-9572-47b1-ad0a-0d88fe2b6b78" width="70" height="70">](https://iexmo.com/altstore/)  [<img src="https://github.com/AppDBRepo/Kodi-iOS-Download/assets/174770769/1cdbf676-8d7e-46cd-9211-3e32c15791c2" width="70" height="70">](https://iexmo.com/sideloadly/)  [<img src="https://github.com/AppDBRepo/Kodi-iOS-Download/assets/174770769/a1bbbdda-18ad-47e7-9e4c-fbeb38ff767b" width="70" height="70">](https://iexmo.com/updates/sidestore-ios/) 
+ [<img src="https://github.com/AppDBRepo/Kodi-iOS-Download/assets/174770769/274fbadf-aee0-42ac-a916-b74b3a82ee6c" width="70" height="70">](https://iospack.com/apps/esign-ipa-installer/)   [<img src="https://github.com/AppDBRepo/Kodi-iOS-Download/assets/174770769/9003e658-4e3f-4a46-bf18-b611c8a58e36" width="70" height="70">](https://iospack.com/apps/trollstore/)  [<img src="https://github.com/AppDBRepo/Kodi-iOS-Download/assets/174770769/486b63aa-4b60-4a62-99ae-2d721c4aca87" width="70" height="70">](https://iexmo.com/altstore/)  [<img src="https://github.com/AppDBRepo/Kodi-iOS-Download/assets/174770769/d66ecec2-c29a-4624-a493-f57a1e26e150" width="70" height="70">](https://iexmo.com/sideloadly/)  [<img src="https://github.com/AppDBRepo/Kodi-iOS-Download/assets/174770769/1cc2a641-24b7-4ffe-b76d-3a750b687bcf" width="70" height="70">](https://iexmo.com/updates/sidestore-ios/) 
 
 ## Compatibility iOS and iPadOS
 
